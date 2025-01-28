@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Adharsh kannemadugu
 - 👀 I’m interested in 
-- 🌱 I’m currently Persuing BCA
+- 🌱 I’m currently Persuing MCA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
